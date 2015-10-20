@@ -1,0 +1,1 @@
+Android for Samsung S5620 (Monte) and tutorials, tips and tricks, applications and a lot of things for mobile Samsung S5620.
